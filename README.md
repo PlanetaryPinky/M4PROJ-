@@ -1,0 +1,16 @@
+PlanetaryPinky/planet.github.io
+PlanetaryPinky/CTS285
+Dataman-Calculator
+PlanetaryPinky/Dataman-Calculator
+CTS285-Project-1
+PlanetaryPinky/CTS285-Project-1
+M4PROJ-
+PlanetaryPinky/M4PROJ-
+ortiza651.github.io
+PlanetaryPinky/ortiza651.github.io
+Planet.io
+PlanetaryPinky/Planet.io
+MyHomepage
+PlanetaryPinky/MyHomepage
+cti110
+PlanetaryPinky/cti110
